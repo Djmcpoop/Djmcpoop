@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Djmcpoop
+- 👀 I’m interested in python for university
+- 📫 How to reach me gmail: jelinekmax8@gmail.com
